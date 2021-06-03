@@ -1,2 +1,0 @@
-# yasssmiiin.github.io
-yasmin
